@@ -13,7 +13,7 @@ The easiest way for me to naturally wake up at 5am and still be able to sleep is
 ### Receptions
 So far, only very few (2) downloads likely happened where a clear and profound feeling that a specific static 2.5D image has to be remembered at wake-up. Parts of the images were visually clear, with edges, colors and semantics, the rest was unreachable by vision but very precise on the semantics: which concept, how many instances and where. It's quite a disturbing feeling to try to see something at that stage, something that you deeply know what it is only to fail to observe colors, details and just 'see' emptiness.
 
-At this stage, there is no means of knowin if these views were more than just dreams. The deep feeling and urgency of having to remember it when waking up is one clue but that's no proof. 
+At this stage, there is no means of knowing if these views were more than just dreams. The deep feeling and urgency of having to remember it when waking up is one clue but that's no proof 
 
 Let's keep on experimenting!
 
